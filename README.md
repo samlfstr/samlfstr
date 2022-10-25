@@ -1,4 +1,5 @@
-![Group](https://user-images.githubusercontent.com/28195113/197860383-e8087f75-ac13-46af-a723-9031c9d98c19.png)
+![Group2](https://user-images.githubusercontent.com/28195113/197861817-a6e17ec4-7274-4a5d-8b99-116136aa917a.png)
+
 
 ## 💼 Skills
 
